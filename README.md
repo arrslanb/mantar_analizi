@@ -1,0 +1,1 @@
+# mantar_analizi
